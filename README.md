@@ -1,0 +1,6 @@
+- Hi, I’m @chakko39
+- I'm japanese that cant use eng well
+- I'm glad if you use easy eng  or not
+- I use github for mindustry
+- I wonder why you read it
+- Please ignore my badass grammar
